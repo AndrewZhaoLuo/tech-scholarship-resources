@@ -1,4 +1,4 @@
-# Tech Scholarship Resources (2017 Deadlines)
+# Tech Scholarship Resources (2017 Deadlines) Credit to Andrew Zhao Luo
 
 This is scholarship resource list compiled based on scholarships that I have heard about / applied to / received.  This is by no means a comprehensive scholarship list nor am I affiliated with any of the donors or organizations that are listed below.
 
